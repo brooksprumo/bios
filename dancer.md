@@ -1,4 +1,4 @@
-# Brooks: the dancer
+# Brooks: the Dancer
 
 Brooks is an avid Lindy Hopper living in Austin, TX. He is driven by a continuous need to create something new and true to himself. He is also a founding member of award-winning dance groups: Lindy Hopper's Dozen and Lindy Hopper's Half Dozen.
 
