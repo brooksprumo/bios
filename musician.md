@@ -5,7 +5,7 @@ Brooks is a Swing & Jazz rhythm guitar player who's found great inspiration and 
 
 Hear Brooks play music
 ----------------------
-Jonathan Doyle Quintet's The Fed Hop [bandcamp](https://jonathandoyle.bandcamp.com/album/the-fed-hop)
-Jonathan Doyle Quintet - After Theatrer Jump [youtube](http://youtu.be/dlIOiQO4BtY)
-Jonathan Doyle Swingtet - Castle Rock [youtube](http://youtu.be/Th-TDynahJs)
-Floyd Domino All Stars - Way Down Yonder in New Orleans [youtube](http://youtu.be/YUwNz8Ax8Zk)
+- Jonathan Doyle Quintet [After Theatrer Jump](http://youtu.be/dlIOiQO4BtY)
+- Jonathan Doyle Swingtet [Castle Rock](http://youtu.be/Th-TDynahJs)
+- Floyd Domino All Stars [Way Down Yonder in New Orleans](http://youtu.be/YUwNz8Ax8Zk)
+snag the Jonathan Doyle Quintet's [The Fed Hop](http://www.jonathandoylemusic.com/new-products/the-fed-hop) album at [bandcamp](https://jonathandoyle.bandcamp.com/album/the-fed-hop)
