@@ -5,8 +5,7 @@ Brooks is an avid Lindy Hopper living in Austin, TX. He is driven by a continuou
 Now a-days, Brooks is often seen dancing to jazz music, teaching how to dance to jazz music, listening to jazz music, trying to find new jazz music, or playing jazz music. He really likes jazz music. Brooks enjoys focusing on the rhythm of the dance, in addition to an understanding of his partner and the music.
 
 
-See Brooks dance
-----------------
-Lindy Hopper's Dozen [youtube](http://youtu.be/8XaTlpS53ZM)
-Lindy Hopper's Half Dozen [youtube](http://youtu.be/Rf5z1zt8kFQ)
-performance with Mary Freitag [youtube](http://youtu.be/vDg1hHGKp50)
+#### See Brooks dance ####
+- Lindy Hopper's Dozen [youtube](http://youtu.be/8XaTlpS53ZM)
+- Lindy Hopper's Half Dozen [youtube](http://youtu.be/Rf5z1zt8kFQ)
+- performance with Mary Freitag [youtube](http://youtu.be/vDg1hHGKp50)
