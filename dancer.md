@@ -7,6 +7,6 @@ Now a-days, Brooks is often seen dancing to jazz music, teaching how to dance to
 
 #### See Brooks dance
 
-- [Lindy Hopper's Dozen - Get the Mop](http://youtu.be/8XaTlpS53ZM)
-- [Lindy Hopper's Half Dozen - Disorder at the Border](http://youtu.be/Rf5z1zt8kFQ)
-- [performance with Mary Freitag - All Alone](http://youtu.be/vDg1hHGKp50)
+- [Get the Mop](http://youtu.be/8XaTlpS53ZM) with Lindy Hopper's Dozen
+- [Disorder at the Border](http://youtu.be/Rf5z1zt8kFQ) with Lindy Hopper's Half Dozen
+- [All Alone](http://youtu.be/vDg1hHGKp50) with Mary Freitag 

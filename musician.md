@@ -9,4 +9,4 @@ Brooks is a Swing & Jazz rhythm guitar player who's found great inspiration and 
 - Jonathan Doyle Swingtet [Castle Rock](http://youtu.be/Th-TDynahJs)
 - Floyd Domino All Stars [Way Down Yonder in New Orleans](http://youtu.be/YUwNz8Ax8Zk)
 
-snag the Jonathan Doyle Quintet's [The Fed Hop](http://www.jonathandoylemusic.com/new-products/the-fed-hop) album at [bandcamp](https://jonathandoyle.bandcamp.com/album/the-fed-hop)
+Snag the Jonathan Doyle Quintet's [The Fed Hop](http://www.jonathandoylemusic.com/new-products/the-fed-hop) album at [bandcamp](https://jonathandoyle.bandcamp.com/album/the-fed-hop)!
