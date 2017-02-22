@@ -5,9 +5,10 @@ Brooks Prumo is a Swing & Jazz rhythm guitar player who's found great inspiratio
 
 #### Hear Brooks play music
 
-- Jonathan Doyle Quintet [After Theatrer Jump](http://youtu.be/dlIOiQO4BtY)
-- Jonathan Doyle Swingtet [Castle Rock](http://youtu.be/Th-TDynahJs)
-- Floyd Domino All Stars [Way Down Yonder in New Orleans](http://youtu.be/YUwNz8Ax8Zk)
+- [Brooks Prumo Orchestra](http://www.brooksprumoorchestra.com) - [Jon's Dream (Dickie's Dream)](http://youtu.be/hvG0EazG8H8)
+- Jonathan Doyle Swingtet - [Castle Rock](http://youtu.be/Th-TDynahJs)
+- Jonathan Doyle Quintet - [After Theatrer Jump](http://youtu.be/dlIOiQO4BtY)
+- Floyd Domino All Stars - [Way Down Yonder in New Orleans](http://youtu.be/YUwNz8Ax8Zk)
 - [More music](https://www.youtube.com/playlist?list=PLoW6-AN5ru1V--gUJLTnP1bYja59CmmHo)!
 
 ##### Albums
