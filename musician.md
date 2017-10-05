@@ -5,14 +5,20 @@ Brooks Prumo is a Swing & Jazz rhythm guitar player who's found great inspiratio
 
 #### Hear Brooks play music
 
-- [Brooks Prumo Orchestra](http://www.brooksprumoorchestra.com) - [Jon's Dream (Dickie's Dream)](http://youtu.be/hvG0EazG8H8)
-- Jonathan Doyle Swingtet - [Castle Rock](http://youtu.be/Th-TDynahJs)
-- Jonathan Doyle Quintet - [After Theatrer Jump](http://youtu.be/dlIOiQO4BtY)
+- [Brooks Prumo Orchestra] - [Dickie's Dream](http://youtu.be/hvG0EazG8H8)
+- [Jonathan Doyle] Swingtet - [Castle Rock](http://youtu.be/Th-TDynahJs)
+- [Jonathan Doyle] Quintet - [After Theatrer Jump](http://youtu.be/dlIOiQO4BtY)
 - Floyd Domino All Stars - [Way Down Yonder in New Orleans](http://youtu.be/YUwNz8Ax8Zk)
 - [More music](https://www.youtube.com/playlist?list=PLoW6-AN5ru1V--gUJLTnP1bYja59CmmHo)!
 
 ##### Albums
 
-- Jonathan Doyle Swingtet - Too Hot For Socks [[bandcamp](http://jonathandoyle.bandcamp.com/album/too-hot-for-socks)] 
-- [Michael Gamble and The Rhythm Serenaders](http://organic-records.com/project/michael-gamble-and-the-rhythm-serenaders-latest-release/) [[iTunes](https://itunes.apple.com/us/album/michael-gamble-rhythm-serenaders/id1121446386)] [[Amazon](https://www.amazon.com/Michael-Gamble-Rhythm-Serenaders/dp/B01GQZD5SG/ref=sr_1_1?ie=UTF8&qid=1469379218&sr=8-1&keywords=michael+gamble+and+the+rhythm+serenaders)]
-- Jonathan Doyle Quintet - [The Fed Hop](http://www.jonathandoylemusic.com/new-products/the-fed-hop) [[bandcamp](https://jonathandoyle.bandcamp.com/album/the-fed-hop)]
+- [Brooks Prumo Orchestra] - Pass The Bounce [[bandcamp](http://brooksprumoorchestra.bandcamp.com/album/pass-the-bounce)]
+- [Jonathan Doyle] Swingtet - [At The Sahara](http://www.jonathandoylemusic.com/at-the-sahara/)
+- [Jonathan Doyle] Swingtet - Too Hot For Socks [[bandcamp](http://jonathandoyle.bandcamp.com/album/too-hot-for-socks)]
+- [Michael Gamble & The Rhythm Serenaders] - Self-titled [[iTunes](https://itunes.apple.com/us/album/michael-gamble-rhythm-serenaders/id1121446386)] [[elsewhere](https://clg.lnk.to/iLmKa)]
+- [Jonathan Doyle] Quintet - [The Fed Hop](http://www.jonathandoylemusic.com/new-products/the-fed-hop) [[bandcamp](https://jonathandoyle.bandcamp.com/album/the-fed-hop)]
+
+[Brooks Prumo Orchestra]: http://www.brooksprumoorchestra.com/
+[Jonathan Doyle]: http://www.jonathandoylemusic.com/
+[Michael Gamble & The Rhythm Serenaders]: http://www.rhythmserenaders.com/
