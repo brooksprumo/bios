@@ -15,7 +15,7 @@ Brooks Prumo is a Swing & Jazz rhythm guitar player who's found great inspiratio
 
 - 2018 - [Floyd Domino All Stars] - [Self-titled](http://smarturl.it/floyddomino)
 - 2017 - [Brooks Prumo Orchestra] - Pass The Bounce [[bandcamp](http://brooksprumoorchestra.bandcamp.com/album/pass-the-bounce)]
-- 2016 - [Jonathan Doyle] Swingtet - At The Sahara (no longer available)
+- 2016 - [Jonathan Doyle] Swingtet - [At The Sahara](http://www.jonathandoylemusic.com/at-the-sahara)
 - 2016 - [Jonathan Doyle] Swingtet - Too Hot For Socks [[bandcamp](http://jonathandoyle.bandcamp.com/album/too-hot-for-socks)]
 - 2015 - [Michael Gamble & The Rhythm Serenaders] - Self-titled [[iTunes](https://itunes.apple.com/us/album/michael-gamble-rhythm-serenaders/id1121446386)] [[elsewhere](https://clg.lnk.to/iLmKa)]
 - 2014 - [Jonathan Doyle] Quintet - [The Fed Hop](http://www.jonathandoylemusic.com/new-products/the-fed-hop) [[bandcamp](https://jonathandoyle.bandcamp.com/album/the-fed-hop)]
