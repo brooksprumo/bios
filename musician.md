@@ -13,6 +13,7 @@ Brooks Prumo is a Swing & Jazz rhythm guitar player who's found great inspiratio
 
 ##### Albums
 
+- 2026 - [Brooks Prumo Orchestra] - Good Bait [[bandcamp](http://brooksprumoorchestra.bandcamp.com/album/good-bait)]
 - 2020 - [Brooks Prumo Orchestra] - This Year's Kisses [[bandcamp](http://brooksprumoorchestra.bandcamp.com/album/this-years-kisses)]
 - 2018 - [Floyd Domino All Stars] - [Self-titled](http://smarturl.it/floyddomino)
 - 2017 - [Brooks Prumo Orchestra] - Pass The Bounce [[bandcamp](http://brooksprumoorchestra.bandcamp.com/album/pass-the-bounce)]
